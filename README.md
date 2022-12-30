@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **soft skill**
 
-- 📫 How to reach me **https://www.linkedin.com/lebom**
+- 📫 How to reach me **https://www.linkedin.com/lebomolepo**
 
 - ⚡ Fun fact **wine conniosseur**
 
